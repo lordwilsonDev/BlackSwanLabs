@@ -1,4 +1,4 @@
-🦢 BLACKSWANLABZ: The Sovereign Intel Gateway
+https://zenodo.org/records/18868598🦢 BLACKSWANLABZ: The Sovereign Intel Gateway
 Intelligence Strategist | Architect | Engineer
 I see you watching.
 
